@@ -1,0 +1,1 @@
+# Personagem-cenario-e-tradutor
